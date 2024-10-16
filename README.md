@@ -15,6 +15,8 @@ Hi! I'm Daniver Torres 👋
 
 📫 Contact Me:
 
+LinkedIn: https://www.linkedin.com/feed/
+
 Email: danivertorres90@gmail.com
 
 Instagram: @danivertorres
